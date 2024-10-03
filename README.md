@@ -4,3 +4,4 @@ okeeeee
 primenii crzyyyy
 primenii crazy
 promena vo conflict REAMME
+promena 1 vo glavna 
